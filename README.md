@@ -1,0 +1,1 @@
+# akopreseba.sk
